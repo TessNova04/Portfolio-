@@ -59,5 +59,5 @@ I specialize in **Web2 & Web3 analytics**, cryptocurrency and forex market analy
 ## 🔹 Contact
 
 - Email: testimonyadaramola@gmail.com
-- LinkedIn: [Your LinkedIn]([https://linkedin.com/in/yourprofile](https://tinyurl.com/4ncfbvxx))  
-- Twitter: [@yourhandle](https://twitter.com/yourhandle)
+- LinkedIn: [Tess Adaramola](https://tinyurl.com/4ncfbvxx)  
+- Twitter: [@cryptonova04](https://x.com/cryptonova04)
